@@ -1,6 +1,12 @@
 ## For Christians; For Our Faith; For Our Purity; For the Gospel of Our Lord Jesus Christ unto Salvation; Salvation from Death unto Everlasting Life:
 
-### Saved Works From My Other Channels:
+### My channels and the prophesies for preparation and safety of the child prophet vyacheslav if they still are present:
+https://www.expandingawarenessrelations.com/david-goldbergs-final-words-project-pogo-and-project-zyphr-full-transcript/
+https://www.youtube.com/channel/UCOwxoCWgP2iiBhH2wu1pbMQ/videos
+https://www.linkedin.com/in/paul-z-26bb58135/
+https://www.facebook.com/paul.zeng.1401/
+
+### More Valuable Works From My Other Channels If They Do Get Removed:
 
 ```markdown
 
