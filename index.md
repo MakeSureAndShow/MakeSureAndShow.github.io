@@ -33,7 +33,10 @@ Knowledge of PURITY and Faith in PURITY (The Gospel of John):
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20Gospel%20of%20John%20and%20My%20Understanding%20of%20Faith%20(1).pdf
 
 More About The antichrist Who Is solomon: 
-https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/More%20About%20The%20antichrist%20Who%20Is%20solomon%20(1).pdf
+[https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20antichrist%20which%20is%20solomon%2C%20the%20daughter%20of%20pharaoh%20which%20created%20it.pdf](https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20antichrist%20which%20is%20solomon%2C%20the%20daughter%20of%20pharaoh%20which%20created%20it.pdf)
+
+Diverse Truths from The Scriptures:
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/Diverse%20Truths%20from%20The%20Scriptures.pdf
 
 God Judgeth Righteous Judgment:
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/God%20Judgeth%20Righteous%20Judgment%20(Why%20and%20How).pdf
