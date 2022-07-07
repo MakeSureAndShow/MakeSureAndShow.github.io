@@ -26,14 +26,15 @@ What devils in the carnal form are behind world-wide spiritual poverty which man
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20devils%20in%20the%20carnal%20form%20are%20behind%20world-wide%20spiritual%20poverty%20which%20manifests%20in%20the%20earthly%20visible%20torment%20of%20children%20unawares_%20what%20are%20the%20false%20jews%20which%20use%20sorcery%20and%20lies%20to%20gain%20advantage%20with%20True%20Faith%20in%20Jesus%20Ch%20(2).pdf
 
 Salvation is by Grace through Faith. Faith in Jesus Christ. Faith in His Resurrection. (Read For Saving Your Own Life): 
-https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(1).pdf
-https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(2).pdf
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(Jul%207_%20Complete%3B%201a).pdf
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(Jul%207_%20Complete%3B%201b).pdf
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(Jul%207_%20Complete%3B%202).pdf
 
 Knowledge of PURITY and Faith in PURITY (The Gospel of John):
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20Gospel%20of%20John%20and%20My%20Understanding%20of%20Faith%20(1).pdf
 
 More About The antichrist Who Is solomon: 
-[https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20antichrist%20which%20is%20solomon%2C%20the%20daughter%20of%20pharaoh%20which%20created%20it.pdf](https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20antichrist%20which%20is%20solomon%2C%20the%20daughter%20of%20pharaoh%20which%20created%20it.pdf)
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20antichrist%20which%20is%20solomon%2C%20the%20daughter%20of%20pharaoh%20which%20created%20it.pdf
 
 Diverse Truths from The Scriptures:
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/Diverse%20Truths%20from%20The%20Scriptures.pdf
