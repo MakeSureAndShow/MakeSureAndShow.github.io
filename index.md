@@ -33,6 +33,9 @@ https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to
 Knowledge of PURITY and Faith in PURITY (The Gospel of John):
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20Gospel%20of%20John%20and%20My%20Understanding%20of%20Faith%20(1).pdf
 
+Consider the Churches That You Go: Be Warned About Churches Which Left The First Love and First Works of Winning Souls (Proberbs 11:30)
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/Consider%20The%20Churches%20You%20Go%20To_.pdf
+
 More About The antichrist Who Is solomon: 
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20antichrist%20which%20is%20solomon%2C%20the%20daughter%20of%20pharaoh%20which%20created%20it.pdf
 
