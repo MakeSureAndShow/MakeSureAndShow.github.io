@@ -29,6 +29,7 @@ Salvation is by Grace through Faith. Faith in Jesus Christ. Faith in His Resurre
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(Jul%207_%20Complete%3B%201a).pdf
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(Jul%207_%20Complete%3B%201b).pdf
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(Jul%207_%20Complete%3B%202).pdf
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(pt.4).pdf
 
 Knowledge of PURITY and Faith in PURITY (The Gospel of John):
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20Gospel%20of%20John%20and%20My%20Understanding%20of%20Faith%20(1).pdf
