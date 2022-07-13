@@ -2,6 +2,12 @@
 
 ### My channels and the prophesies for preparation and safety of the child prophet vyacheslav if they still are present:
 https://www.expandingawarenessrelations.com/david-goldbergs-final-words-project-pogo-and-project-zyphr-full-transcript/
+
+Prophesies:
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20Child%20Prophet%20Vyacheslav%20Krashenninikov%20(saint%20Peter)%20PART%20ONE.pdf
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20Child%20Prophet%20Vyacheslav%20Krashenninikov%20(saint%20Peter)%20PART%20TWO.pdf
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20Child%20Prophet%20Vyacheslav%20Krashenninikov%20(saint%20Peter)%20PART%20THREE.pdf
+
 https://www.youtube.com/channel/UCOwxoCWgP2iiBhH2wu1pbMQ/videos
 https://www.linkedin.com/in/paul-z-26bb58135/
 https://www.facebook.com/paul.zeng.1401/
