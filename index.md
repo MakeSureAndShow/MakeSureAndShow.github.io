@@ -37,6 +37,9 @@ https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(Jul%207_%20Complete%3B%202).pdf
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/What%20to%20do%20after%20being%20saved%20(pt.4).pdf
 
+The Second Coming of Jesus Christ and The Battle of Armageddon:
+https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20Second%20Coming%20of%20Jesus%20Christ%20and%20Particular%20Prophesies%20of%20Saint%20Peter%20(Vyacheslav%20Krashenninikov%E2%80%99s%20Chronicles%20from%20His%20Mother)_.pdf
+
 Knowledge of PURITY and Faith in PURITY (The Gospel of John):
 https://github.com/MakeSureAndShow/MakeSureAndShow.github.io/blob/main/The%20Gospel%20of%20John%20and%20My%20Understanding%20of%20Faith%20(1).pdf
 
